@@ -1,4 +1,4 @@
-# Hi, I'm Aman Advani 👋
+# Hi, I'm Aman 👋
 
 ### Network & Security Engineer | L3 Team Lead | Product Security R&D
 
